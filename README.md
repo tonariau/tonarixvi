@@ -1,3 +1,5 @@
+![pixel art self portrait](https://tonariau.neocities.org/arty.png)
+
 ### トナリアウ's code dump
 
 *This is another trace of my existence I'm leaving on the internet. Enjoy your stay :space_invader:*

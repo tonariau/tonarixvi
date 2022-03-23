@@ -1,4 +1,4 @@
-### トナリアウ's code dump
+### トナリ９６'s code dump
 
 *This is another trace of my existence I'm leaving on the internet. Enjoy your stay :space_invader:*
 
@@ -14,4 +14,4 @@
 
 - :yellow_heart::white_heart::purple_heart::black_heart: Any pronouns but preferably **they/them** :)
 
-[![be.net/tonariau](https://img.shields.io/badge/Behance-0054F7?style=for-the-badge&logo=behance&logoColor=white)](http://behance.net/tonariau) [![Linkedinho](	https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/tonariau/) [![Medium](		https://img.shields.io/badge/Medium-12100E?style=for-the-badge&logo=medium&logoColor=white)](https://tonariau.medium.com) [![tonariau@tuta.io](https://img.shields.io/badge/Tutanota-840010?style=for-the-badge&logo=Tutanota&logoColor=white)](mailto:tonariau@tuta.io)
+[![be.net/tonariau](https://img.shields.io/badge/Behance-0054F7?style=for-the-badge&logo=behance&logoColor=white)](http://behance.net/tonarixvi) [![Linkedinho](	https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/tonarixvi/) [![Medium](		https://img.shields.io/badge/Medium-12100E?style=for-the-badge&logo=medium&logoColor=white)](https://tonarixvi.medium.com) [![tonariau@tuta.io](https://img.shields.io/badge/Tutanota-840010?style=for-the-badge&logo=Tutanota&logoColor=white)](mailto:tonariau@tuta.io)

@@ -1,4 +1,4 @@
-### トナリ９６'s code dump
+### トナリアウ's code dump
 
 *This is another trace of my existence I'm leaving on the internet. Enjoy your stay :space_invader:*
 
